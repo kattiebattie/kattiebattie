@@ -7,7 +7,7 @@
                     </p>
                     </p>
                     <p align="center">
-‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(99,168,157)}{\textsf{queerplatonic partners with our HOT gender nonconforming wife gentle.. LIIICKKKKK}}$
+‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(74,140,139)}{\textsf{freqyent fronters: LAMPERT EW DNI, ivy, noob the tit toucher}}$
                     </p>
 
 ![](https://files.catbox.moe/x3brfi.webp)
