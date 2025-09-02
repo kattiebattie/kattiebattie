@@ -18,6 +18,8 @@
 <div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
 <p>endo systems, polyminds, darkshippers, pro maga, fictionkins (besides rick and our other close friends, PLS DONT BE A TRENDHOPPER!!!!!!!!), me </p>
 </p></div></details> 
+
+![](https://files.catbox.moe/gc4re5.webp)
 <!--
 **kattiebattie/kattiebattie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
