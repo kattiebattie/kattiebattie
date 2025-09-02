@@ -3,7 +3,7 @@
    $\color{rgb(130,245,208)}{\textsf{heyyy... katties the name, BIGGEST middle school dirtbag ever!!!! ewww!!}}$
                     </p>
                     <p align="center">
-‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(99,168,157)}{\textsf{BRIIHHHH FIHH}}$
+‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(99,168,157)}{\textsf{queerplatonic partners with our HOT gender nonconforming wife gentle.. LIIICKKKKK}}$
                     </p>
 
 ![](https://files.catbox.moe/x3brfi.webp)
