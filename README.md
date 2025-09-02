@@ -8,9 +8,12 @@
 
 ![](https://files.catbox.moe/x3brfi.webp)
 
-DNI: darkshippers, pro maga, endosystems, fictionkins soz (besides rick and our other close friends!!!! u guys arent faking probably... hopefully), polyminds, YOGA INSTRUCTORS THAT GO BY THE NAME AMELIA
+<details>
+<summary>dni list LOL</summary>
 
-frequent fronters: lampert, ivy, noob
+<div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
+<p>TEXT TEXT DUHHH </p>
+</p></div></details> 
 <!--
 **kattiebattie/kattiebattie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
