@@ -1,6 +1,6 @@
 ## ![](https://files.catbox.moe/kqp5qk.webp)
 <p align="center">
-   $\color{rgb(252,3,240)}{\textsf{BLAH BLAH BLAH}}$
+   $\color{rgb(130,245,208)}{\textsf{heyyy... katties the name, BIGGEST middle school dirtbag ever!!!! ewww!!}}$
                     </p>
                     <p align="center">
 ‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(237,45,45)}{\textsf{BRIIHHHH FIHH}}$
