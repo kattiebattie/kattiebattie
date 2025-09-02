@@ -5,6 +5,7 @@ BIGGEST nerd ever!!!!! we're like the embodiment of middle school cringe bookwor
 
 we're queerplatonic partners with our gender nonconforming wife GENTLE.... liiiccccckkkk ❤️
 
+![](https://files.catbox.moe/x3brfi.webp)
 <!--
 **kattiebattie/kattiebattie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
