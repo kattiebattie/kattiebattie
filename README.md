@@ -1,5 +1,5 @@
 ## ![](https://files.catbox.moe/kqp5qk.webp)
-heyyyy youu... katties the name umm the number one american ragebaiter
+heyyyy youu... katties the name
 
 BIGGEST nerd ever!!!!! we're like the embodiment of middle school cringe bookworm
 
