@@ -1,9 +1,10 @@
 ## ![](https://files.catbox.moe/kqp5qk.webp)
-heyyyy youu... katties the name
-
-BIGGEST nerd ever!!!!! we're like the embodiment of middle school cringe bookworm
-
-we're queerplatonic partners with our gender nonconforming wife GENTLE.... liiiccccckkkk ❤️
+<p align="center">
+   $\color{rgb(252,3,240)}{\textsf{BLAH BLAH BLAH}}$
+                    </p>
+                    <p align="center">
+‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(237,45,45)}{\textsf{BRIIHHHH FIHH}}$
+                    </p>
 
 ![](https://files.catbox.moe/x3brfi.webp)
 
