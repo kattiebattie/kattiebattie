@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/4bcglh.webp)
 
-ɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏɪɴꜰᴏ
+hello!! my name is kattie, im diagnosed with major depressive disorder and adhd, meanwhile medically recognized with did BUUURRRPPPPP I love jumalanpelko, what lurks beneath, warrior cats, regretevator, seals, my partner, and drawing
 
 
 
