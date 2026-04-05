@@ -8,7 +8,7 @@ hello!! my name is kattie, im diagnosed with major depressive disorder and adhd,
 <summary>dni list LOL</summary>
 
 <div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
-<p>endo systems, polyminds, darkshippers, pro maga, fictionkins (besides rick and our other close friends, PLS DONT BE A TRENDHOPPER!!!!!!!!), me </p>
+<p>endo systems, polyminds, dark/proshippers, radqueers, melanie martinez fans/supporters, basic dni basically lelelellee YOURE ON THIN ICE IF you're a forsaken fan, indulge in any media made by vivziepop, SOME fictionkins (the trend hopper ones), and endo supporters </p>
 </p></div></details>
 
 ![](https://64.media.tumblr.com/347ccacf3cd77686fba257c92e7603de/779aa251fd339498-fb/s2048x3072/445f8e247d75afe344a23d84ba4afb200f8a9cde.pnj)
